@@ -91,5 +91,5 @@ Feel free to connect if you have questions or want help understanding any part o
 
 Niraj Kumar
 Email: yesiamniraj@gmail.com
-GitHub: github.com/nirajkumar1002
+GitHub: www.github.com/nirajkumar1002
 
